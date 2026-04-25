@@ -1,6 +1,6 @@
-## Hi, my name is Omgracyn but you can call me Gracyn.
+## @ weonym!!
 
-All of my socials are @Omgracyn . I draw alot and spend most my time either focusing on school work or making new peices. I tend to be busy / not active outside of my already settled friends, but I'm always down to meet and chat to new people!!
+hi
 
 ⮡           When drawing, I use different programs.  I use Ibispaintx (Premium) and Procreate. I use toonsquid to animate.
 
